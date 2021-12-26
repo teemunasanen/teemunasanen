@@ -1,6 +1,6 @@
 ### Hi there 👋
 This is my personal Github account and I have been using it since 2019 when I started studying Business Information Technology at [Laurea University of Applied Sciences](https://www.laurea.fi/en/).
-# Looking for trainee/job positions in IT 🚀
+
 ### Teemu Näsänen 🙋‍♂️
 👨‍🎓  3rd year BIT-student
 👨‍👩‍👧‍👦 Family of four
